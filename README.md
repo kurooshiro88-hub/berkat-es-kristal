@@ -1,1 +1,0 @@
-# berkat-es-kristal
